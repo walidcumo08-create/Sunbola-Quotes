@@ -22,3 +22,9 @@
 ---
 **منصة سُنبلة - مدرسة الضمير الواقعي للفكر © 2026**
 ![1000193241](https://github.com/user-attachments/assets/93d1befc-1d43-4ab0-bc6b-b7b66d83fb73)
+
+
+---
+🔗 **للمزيد من القراءات الفلسفية والجيوسياسية:**
+[منصة سُـنبلة الرسمية](https://walidcumo08-ahvpy.wordpress.com)
+
